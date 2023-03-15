@@ -1,0 +1,2 @@
+# .github
+stay cursed friends
